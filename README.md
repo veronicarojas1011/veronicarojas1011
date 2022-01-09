@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @veronicarojas1011
+- 🌱 I’m currently learning  Desarrollo Web
+- 💞️ I’m looking to collaborate on  la creación de páginas web
+- 📫 How to reach me  vero3447@gmail.com
